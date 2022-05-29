@@ -1,1 +1,1 @@
-# kursovoi-project
+https://stepovaaya.github.io/kursovoi-project/
